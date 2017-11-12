@@ -1,6 +1,6 @@
 v0 feita com contas da planilha: https://docs.google.com/spreadsheets/d/1tYDeqWt6_HnhcsOasPbvldp6_ZD5PsqeSyN-B0M_CIo/edit#gid=0
 
-## Meta 1 - R$ 750
+## Meta 1 - R$ 750,00
 Manter o onibus parado, dando partida de vez em quando para não descarregar
 
 ## Meta 2 - R$ 6.500,00 
