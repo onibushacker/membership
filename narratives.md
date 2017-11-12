@@ -16,3 +16,12 @@ Desde a sua origem em 2011, numa campanha de financiamento coletivo, essa organi
 
 Queremos convidar você para fazer parte desse grupo e acreditamos que o modelo de assinaturas pode potencializar o alcance e o impacto do nosso busão.
 
+---
+
+O ônibus hacker é um veículo mantido por pessoas que amam trocar experiências e conhecimentos, ao longo de 6 anos de estrada realizando viagens, organizadas de forma aberta, para diversos pontos da America Latina e fomos equipando ele com tendas, impressora 3d, projetor, cartolina, canetinhas, fantasias, geradores, kits educacionais...
+
+Muito legal né, mas ele é um onibus antigo. Que quebra muito e tem uma manutenção muito cara.
+
+Acreditamos que o modelo de assinaturas pode potencializar o alcance e o impacto desse busão e queremos convidar você para entrar nessa roubada conosco.
+
+
